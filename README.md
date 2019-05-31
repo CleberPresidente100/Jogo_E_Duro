@@ -1,1 +1,1 @@
-# E_Duro
+# É Duro
